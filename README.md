@@ -1,3 +1,3 @@
 # NEFFEX: SUS - RED - CUP Fan-Mod
 
-- Created by @ ffm.bio/braeuermusic ©
+- Created by @ ffm.bio/braeuermusic © 2022
